@@ -1,0 +1,1 @@
+# bilisim-s-nav-al-sma-notlar-m
